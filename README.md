@@ -1,5 +1,5 @@
-### Hi there 👋
-a
+### Apoc2 player
+### Roblox profile https://www.roblox.com/users/3674654617/profile?friendshipSourceType=PlayerSearch
 <!--
 **Kito0917/Kito0917** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
